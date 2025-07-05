@@ -3,8 +3,10 @@
 
 ## 邀请码 93103674
 <https://shanlianvpn.info/download?inviteCode=93103674>
+
 <https://lightningxvpn.com/download?inviteCode=93103674>
 
 ## 邀请码 72074715
 <https://shanlianvpn.info/download?inviteCode=72074715>
+
 <https://lightningxvpn.com/download?inviteCode=72074715>
