@@ -1,6 +1,8 @@
 # lightningxvpn
 闪连VPN：高速、稳定、简单、安全 免费试用
 
+<https://lightningxvpn.com/register/>
+
 ## 邀请码 93103674
 <https://shanlianvpn.info/download?inviteCode=93103674>
 
